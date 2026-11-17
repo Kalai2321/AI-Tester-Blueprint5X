@@ -1,0 +1,1 @@
+Infosys Limited is a global Indian multinational corporation that provides information technology (IT), business consulting, and outsourcing services.
